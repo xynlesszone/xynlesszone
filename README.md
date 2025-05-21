@@ -1,6 +1,6 @@
-- HELLO!! HALLO!! we are lostmediamassacre
-- bodily 15-16 (nov 8 2008) jew, HC/CDID SYSTEM
-- please collectively use masc terms on us, refer to us as itha or mandela
+- HELLO!! HALLO!! we are angels grave collective
+- HS STUDENT!! jew + indig., HC/CDID SYSTEM
+- please collectively use fem/neu terms on us, we go by kozi/vale
 - intwe caution/care at all times
 - we are not online on pony town often, feel free to ask for our disc
 
